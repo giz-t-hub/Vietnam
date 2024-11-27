@@ -2,7 +2,7 @@
 Plans, data and other documents on transport in Vietnam
 
 <b> 
-Community list of publications, data and other useful information on transport in Kenya :bike::bus::train:🌳🚊
+Community list of publications, data and other useful information on transport in Vietnam :bike::bus::train:🌳🚊
 </b><br><br>
 
 Have something to add or change? Contact: Armin.Wagner@giz.de
