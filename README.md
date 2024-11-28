@@ -131,4 +131,4 @@ For more information about our work, please refer to:
 		
 Compiled by / Contact:
 - Frederic Bocklet 
-- (as of June 2024)
+- (as of November 2024)
